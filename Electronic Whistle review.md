@@ -81,9 +81,7 @@ When I searched for e-whistles online, I was surprised at the selection…then I
 |  **Fox 40 Mini Electronic Whistle**<br/> | 100 db<br/> | $18.45<br/> | **<br/> |
 |  **obuyo / ZHT / Airpirich Electronic Whistle**<br/> | 120-150 db<br/> | $12.49 - $14.99<br/> | *****<br/> |
 
-**
-**
-**## Links**
+## Links
 Fox 40 Electronic Whistle $17.95 - https://www.amazon.com/gp/product/B003DWH4KG  
 Fox 40 Mini Electronic Whistle $18.45 - https://www.amazon.com/gp/product/B077YQXKB3
 
